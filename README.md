@@ -69,7 +69,7 @@ Dec 2023 - May 2024
 - **📧 Email:** [amaniyeshiwas@gmail.com](mailto:amaniyeshiwas@gmail.com)
 - **📞 Phone:** +251946971515
 
-Feel free to connect with me on [GitHub](https://github.com/Amani73) or [LinkedIn](https://www.linkedin.com/in/amanuel-yeshiwas-yohannes-859449316).
+Feel free to connect with me on [GitHub](https://github.com/Amani73) or [LinkedIn](https://www.linkedin.com/in/amanuel-yeshiwas/).
 
 ---
 
